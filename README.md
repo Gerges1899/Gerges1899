@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **gergesabdo99@gmail.com**
 
-- 📄 Know about my experiences [Here]([https://drive.google.com/file/d/1fPt0CwF-jwQOkbfgIVFHOshHSQa7vexk/view?usp=sharing](https://drive.google.com/file/d/1yuWQ6FX5sZOaPKdI3DKy77JtBkPK-0YQ/view?usp=share_link))
+- 📄 Know about my experiences [Here](https://drive.google.com/file/d/1yuWQ6FX5sZOaPKdI3DKy77JtBkPK-0YQ/view?usp=share_link)
 
 - ⚡ Fun fact **I am playing Guitar**
 
