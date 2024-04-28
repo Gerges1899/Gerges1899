@@ -11,7 +11,7 @@
 
 - 👯 I’m looking to collaborate on **Any AI or Machine Learning Project**
 
-- 💬 Ask me about **Machine Learninng, python, Java, R, react and Vue**
+- 💬 Ask me about **C#, .Net, Machine Learninng, python, Java, R, react and Vue**
 
 - 📫 How to reach me **gergesabdo99@gmail.com**
 
